@@ -50,6 +50,24 @@ recipe:
 
 
 ---
+Onion! Luminous flask!
+
+I AM PURE ONION-- PURE UNION<br/>
+OF OUTSIDE AND IN, SURFACE AND SECRET CORE.
+
+Look at you, chopping and weeping. Idiot.
+
+so did the earth<br/>
+make you,<br/>
+onion<br/>
+clear as a planet<br/>
+and destined<br/>
+to shine<br/>
+
+Taste what you hold in your hands: onion-juice,<br/>
+Yellow peels, my stinging shreds. You are the one<br/>
+In pieces.
+
 BEFORE
 
 ![](/images/french-onion-soup/raw_onions.jpg)
@@ -57,3 +75,12 @@ BEFORE
 AFTER
 
 ![](/images/french-onion-soup/cooked_onions.jpg)
+
+---
+with apologies to the poets:
+
+[Monologue for an onion](https://www.poets.org/poetsorg/poem/monologue-onion)
+
+[Ode to the onion](http://famouspoetsandpoems.com/poets/pablo_neruda/poems/15730)
+
+---
